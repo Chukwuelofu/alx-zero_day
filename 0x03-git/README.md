@@ -1,1 +1,1 @@
-My new directory
+Starting to code today, so cool
